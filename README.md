@@ -45,6 +45,6 @@ I’ve uploaded a short video demonstrating the project in action.
 
 🎥 **Watch here:**
 
-You can also check it out on my [LinkedIn Post]().
+You can also check out on my [LinkedIn Post](https://www.linkedin.com/posts/shahdha-akhtharin-6693a731a_skillcrafttechnology-softwaredevelopment-activity-7338187308854095872-Q0vB?utm_source=share&utm_medium=member_ios&rcm=ACoAAFDcIPEB6iOd73JGXY2Vl0fUIJTMkTa5Nw0).
 
-🔗 Connect with me on [LinkedIn]()
+🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/shahdha-akhtharin-6693a731a)
